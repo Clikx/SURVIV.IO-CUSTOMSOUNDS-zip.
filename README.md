@@ -9,3 +9,9 @@
 5 Select the zip file
 
 6 YOUR DONE-----big brain
+
+
+Join my discord and sub to my channel for support
+
+https://discord.gg/Hczcw6N7
+https://www.youtube.com/channel/UC5smyjgzaieiNLNwGsZjZow
