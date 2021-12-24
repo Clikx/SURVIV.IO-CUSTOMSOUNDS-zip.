@@ -16,5 +16,10 @@ Join my discord and sub to my channel for support
 https://discord.gg/Hczcw6N7
 
 https://www.youtube.com/channel/UC5smyjgzaieiNLNwGsZjZow
-![images (1)](https://user-images.githubusercontent.com/96625447/147365713-4422e1a1-117c-4cf9-ad0f-cd8b6f53b31e.jpeg)
-![Screenshot 2021-12-24 11 55 45 AM](https://user-images.githubusercontent.com/96625447/147365738-b70025f8-9096-4fe5-9afd-a96febd4541c.png)
+
+
+
+
+
+
+![images (1)](https://user-images.githubusercontent.com/96625447/147365776-28aee779-1262-4d72-9d7d-30d65c2dd5ca.jpeg)
