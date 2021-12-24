@@ -22,4 +22,3 @@ https://www.youtube.com/channel/UC5smyjgzaieiNLNwGsZjZow
 
 
 
-![images (1)](https://user-images.githubusercontent.com/96625447/147365776-28aee779-1262-4d72-9d7d-30d65c2dd5ca.jpeg)
