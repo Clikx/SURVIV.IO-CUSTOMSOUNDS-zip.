@@ -1,11 +1,11 @@
-Download the latest zip files
+1 Download the latest zip files
 
-Click the link and download resaurce overdrive>>https://chrome.google.com/webstore/detail/resource-override/pkoacgokdfckfpndoffpifphamojphii
+2 Click the link and download resaurce overdrive>>https://chrome.google.com/webstore/detail/resource-override/pkoacgokdfckfpndoffpifphamojphii
 
-Ckick ``Options``
+3 Ckick ``Options``
 
-Then click load Rules
+4 Then click load Rules
 
-Select the zip file
+5 Select the zip file
 
-YOUR DONE-----big brain
+6 YOUR DONE-----big brain
