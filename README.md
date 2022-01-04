@@ -27,7 +27,7 @@ https://www.youtube.com/channel/UC5smyjgzaieiNLNwGsZjZow
 
 *DISCLAIMER* 
 
-This was not made by me, i used the script that semmed to work and edited it so it would be more easy to use.
+This was not made by me, i used part of the original script that worked and edited it so it would be more easy to use.
 
 I used FilipKZhongs script and if correct Humphrys.
 
